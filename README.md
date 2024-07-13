@@ -26,10 +26,7 @@ Imagens geradas via Bing
 Imagens utilizadas em assets
 ebook gerado durante as aulas em output
 
-
-
-   Felipe Aguiar
-    GitHub |  LinkedIn  |  Instagram  | 
+Carolina Prado
 
 
 
